@@ -1,4 +1,4 @@
-## Hi there 👋
+## Eai, tranquilo? :))
 
 <!--
 **Kasskkj/Kasskkj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
