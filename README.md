@@ -1,5 +1,5 @@
 ## Eai, tranquilo? :))
-
+Perfilzinho iniciante, estudando e aprimorando !
 <!--
 **Kasskkj/Kasskkj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
